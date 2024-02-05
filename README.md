@@ -1,0 +1,1 @@
+# 	ISO/IEC 23001-7:2016 & ISO/IEC 23001-9:2016 Free PDF Full Online
